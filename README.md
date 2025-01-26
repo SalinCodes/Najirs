@@ -1,2 +1,0 @@
-# Najir
-Top similar Najirs.
